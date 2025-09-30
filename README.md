@@ -1,1 +1,1 @@
-# Hackathon-from-T1-30.09.2025-
+# Hackathon-from-T1-30.09.2025
